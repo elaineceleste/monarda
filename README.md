@@ -1,0 +1,1 @@
+This file contains raw data from collections of bees from _Monoarda fistulusa_ plants for the manuscript "Dawn to dusk division of _Monarda fistulosa_ foraging time by bumble bee species and the likelihood to return the next day"._______
